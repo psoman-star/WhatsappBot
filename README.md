@@ -17,7 +17,7 @@
 
 
 **Automate & Scale Your WhatsApp Marketing**  
-Bulk messaging, group management, and advanced filtering for businesses and marketers. Includes a built-in License Key Generator for seamless activation.
+Bulk messaging, group management, and advanced filtering for businesses and marketers.  
 
 ---
 
